@@ -1,0 +1,1 @@
+Full-Stack Developer 3-Month Daily Checklist
